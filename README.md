@@ -1,2 +1,2 @@
-# djp
-djp x mdco
+# dillonjordanphotos.com
+by [Moonshot Design Co.](https://moonshotdesignco.com)
